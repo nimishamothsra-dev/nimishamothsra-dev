@@ -47,4 +47,4 @@ n8n · Arize Phoenix · LLM-as-judge · evaluation datasets · HTTP APIs & webho
 
 ---
 
-Open to freelance and contract work, in UK and Australian hours. Contact links coming soon.
+www.linkedin.com/in/nimisha-mothsra-0396a4286
